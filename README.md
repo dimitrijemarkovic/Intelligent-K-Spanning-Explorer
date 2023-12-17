@@ -1,0 +1,1 @@
+# Intelligenti-K-Spanning-Explorer
